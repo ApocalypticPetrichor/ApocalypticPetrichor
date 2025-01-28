@@ -7,5 +7,7 @@
 
 ![](https://64.media.tumblr.com/c0d1281e75e43575d1c139489638aa1b/51fdeb712f5ba181-9e/s540x810/2764f373b602f565fca1c56741c73dac25174fea.gif)
 
-hey so THIS is my husband. hes a beauty, hes so perfect, hes a comfort to my soul yet also makes me crazy i CANTT AUGVWDXGHEDHVC HES SO FINE??? omg suddenly im blade hahah ee
+hey so THIS is my husband. hes a beauty, hes so perfect, hes a comfort to my soul yet also makes me crazy i CANTT AUGVWDXGHEDHVC HES SO FINE??? I am literally Blade IRL heh...
+
+JY-related stuff count: 5 keychains, 6 plushes, 1 handmade bracelet, 2 handmade rings, 3 posters of him on my wall, 3 firgurines, his phonecase, 1 handmade hairpin, 1 crochetted plush, 2.1k pins in Pinterest board, 880+ tiktok vids saved abt him, 2 acrylic paintings, 4 digital drawings and 30 doodles/ sketches I DONT even like him that much what are you guys talking abt... :D
 
