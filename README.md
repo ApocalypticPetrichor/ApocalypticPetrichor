@@ -9,7 +9,7 @@
 
 <p align="center"> ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-<p align="center"> Click on rentry (will rmk soon) for full info about me, Carrd (EXTREMELY OUTDATED💔)  for basic info ( ^ヮ^ )
+<p align="center"> Click on rentry for info abt me ( ^ヮ^ )
 
 
 
